@@ -24,3 +24,9 @@
 7. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 8. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 9. Pour the batter into a greased and floured 9x13-inch baking pan.
+
+## Additional Directions by Teen:
+10. Add more chocolate
+11. Then some more...
+12. Just a bit a more
+13. and done... after you add more
